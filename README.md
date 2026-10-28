@@ -2,7 +2,7 @@
 
 **Last updated: June 13, 2026**
 
-Modern Ouija ("the app") is an offline entertainment utility. Your privacy matters to us, and the app is built so that your information stays on your device. This policy explains what the app does and does not do with your data.
+Modern Spirit Board ("the app") is an offline entertainment utility. Your privacy matters to us, and the app is built so that your information stays on your device. This policy explains what the app does and does not do with your data.
 
 ## Information We Collect
 
